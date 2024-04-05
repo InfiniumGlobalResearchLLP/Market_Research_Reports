@@ -1,4 +1,4 @@
-<h2><strong>Global Artificial Intelligence (AI) in Radiology Market is Predicted an Elevation Up to USD 14.82 billion By 2030 with a Growing CAGR of 34.58% | Infinium Global Research</strong></h2>
+<h2><strong>Global Artificial Intelligence (AI) in Radiology Market is Predicted an Elevation Up to USD 14.82 Billion by 2030 with a Growing CAGR of 34.58% | Infinium Global Research</strong></h2>
 <p>&nbsp;</p>
 <p><strong>By- </strong><a href="https://www.infiniumglobalresearch.com"><strong>Infinium Global Research</strong></a></p>
 <p>Infinium Global Research's recent report analyzes the <a href="https://www.infiniumglobalresearch.com/market-reports/global-artificial-intelligence-ai-in-radiology-market">global artificial intelligence (AI) in radiology market</a>, breaking it down into detailed sections. It examines not just the current market but also future predictions, considering both short-term and long-term influences. The report offers a thorough look at market trends, forecasts, and the market's value in US dollars.</p>

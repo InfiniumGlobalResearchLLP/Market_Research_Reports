@@ -1,4 +1,4 @@
-<p><strong>Global Forensic Genomics Market is Anticipated to Reach USD 1447.91 million at a Robust CAGR of 14.16% Between 2023 to 2030 | Infinium Global Research</strong></p>
+<p><strong>Global Forensic Genomics Market is Anticipated to Reach USD 1447.91 Million at a Robust CAGR of 14.16% Between 2023 to 2030 | Infinium Global Research</strong></p>
 <p>&nbsp;</p>
 <p><strong>By- </strong><a href="https://www.infiniumglobalresearch.com"><strong>Infinium Global Research</strong></a></p>
 <p>Infinium Global Research's recent report comprehensively analyzes the <a href="https://www.infiniumglobalresearch.com/market-reports/global-forensic-genomics-market">global forensic genomics market</a>, breaking it down into its various segments and sub-segments. It explores the factors influencing this market's growth, both in the short and long term. The report presents trends, forecasts, and market value estimations.</p>
